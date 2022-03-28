@@ -1,2 +1,5 @@
 # Igor
-## Contacs
+## **Junio Frontend Developer**
+***
+
+## **Contact information:**
